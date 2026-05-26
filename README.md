@@ -32,7 +32,7 @@ He dedicated years of research to compile this masterpiece,
 which has since been translated into dozens of languages worldwide.
 
 > *"This book covers the life of the Prophet ﷺ from birth to death
-> with meticulous detail and authentic references."*
+> with details and authentic references."*
 
 ---
 
