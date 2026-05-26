@@ -35,3 +35,13 @@ which has since been translated into dozens of languages worldwide.
 > with meticulous detail and authentic references."*
 
 ---
+
+## Downloads
+
+| Language | File |
+|----------|------|
+| 🟢 Urdu | [Ar-Raheeq Al-Makhtum — Urdu](./Ar-Raheeq_Al-Makhtum_Urdu.pdf) |
+| 🟢 English | [Ar-Raheeq Al-Makhtum — English](./Ar-Raheeq_Al-Makhtum_English.pdf) |
+
+---
+
