@@ -23,3 +23,15 @@ held in Makkah (1979), competing against 170+ entries from around the world.
 It remains one of the most widely read Seerah books globally.
 
 ---
+
+## Author
+
+**Sheikh Safiur Rahman Mubarakpuri** (1943–2006)
+was an Indian Islamic scholar, historian, and author.
+He dedicated years of research to compile this masterpiece,
+which has since been translated into dozens of languages worldwide.
+
+> *"This book covers the life of the Prophet ﷺ from birth to death
+> with meticulous detail and authentic references."*
+
+---
