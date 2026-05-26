@@ -52,3 +52,11 @@ All rights belong to the original author and publisher.
 No copyright infringement is intended.
 
 ---
+
+<div align="center">
+
+صَلَّى اللّٰهُ عَلَيْهِ وَسَلَّمَ
+
+*Made with ❤️ for the Ummah*
+
+</div>
