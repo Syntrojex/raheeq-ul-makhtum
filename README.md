@@ -45,3 +45,10 @@ which has since been translated into dozens of languages worldwide.
 
 ---
 
+## Disclaimer
+
+This repository is shared purely for **educational and dawah purposes**.
+All rights belong to the original author and publisher.
+No copyright infringement is intended.
+
+---
