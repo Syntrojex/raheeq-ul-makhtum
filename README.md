@@ -14,7 +14,6 @@
 
 </div>
 
-
 ---
 
 ## 📖 About This Book
@@ -42,7 +41,6 @@ a must-read for every Muslim.
 
 **Sheikh Safiur Rahman Mubarakpuri**
 *(1943 – 2006)*
-
 
 An eminent Indian Islamic scholar, historian, and prolific author.
 He dedicated years of deep research and study to compile this
