@@ -42,3 +42,17 @@ a must-read for every Muslim.
 
 **Sheikh Safiur Rahman Mubarakpuri**
 *(1943 – 2006)*
+
+
+An eminent Indian Islamic scholar, historian, and prolific author.
+He dedicated years of deep research and study to compile this
+masterpiece — a work that earned him global recognition
+and continues to benefit millions of readers to this day.
+
+*May Allah have mercy on him. آمين*
+
+</td>
+</tr>
+</table>
+
+---
