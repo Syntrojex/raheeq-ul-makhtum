@@ -22,7 +22,7 @@
 finest and most authentic biographies of **Prophet Muhammad ﷺ** ever written.
 
 Originally authored in Arabic, it covers the complete life of the Prophet ﷺ —
-from his birth in Makkah to his passing — with meticulous research,
+from his birth in Makkah to his passing — with researches,
 authentic references, and beautiful narrative.
 
 > 🏆 **Won 1st Prize** at the World Muslim League's International
