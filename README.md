@@ -69,3 +69,17 @@ and continues to benefit millions of readers to this day.
 </div>
 
 ---
+
+## 🤲 Intention
+
+This repository exists for one reason —
+to make the Seerah of our beloved Prophet ﷺ
+**accessible to everyone, everywhere, for free.**
+
+> *"The best of people are those most beneficial to people."*
+> — Prophet Muhammad ﷺ
+
+All rights belong to the original author and publisher.
+Shared purely for **educational and dawah purposes**.
+No copyright infringement intended.
+
