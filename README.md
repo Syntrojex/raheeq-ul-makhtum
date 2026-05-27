@@ -33,3 +33,12 @@ It has since been translated into **50+ languages** and remains
 a must-read for every Muslim.
 
 ---
+
+## ✍️ About the Author
+
+<table>
+<tr>
+<td>
+
+**Sheikh Safiur Rahman Mubarakpuri**
+*(1943 – 2006)*
