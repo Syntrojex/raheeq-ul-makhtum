@@ -61,8 +61,8 @@ and continues to benefit millions of readers to this day.
 
 | Language | Download |
 |:--------:|:--------:|
-| 🇵🇰 **Urdu** | [📄 Ar-Raheeq Al-Makhtum — Urdu](./Ar-Raheeq_Al-Makhtum_Urdu.pdf) |
-| 🇬🇧 **English** | [📄 Ar-Raheeq Al-Makhtum — English](./Ar-Raheeq_Al-Makhtum_English.pdf) |
+| **Urdu** | [📄 Ar-Raheeq Al-Makhtum — Urdu](./Ar-Raheeq_Al-Makhtum_Urdu.pdf) |
+| **English** | [📄 Ar-Raheeq Al-Makhtum — English](./Ar-Raheeq_Al-Makhtum_English.pdf) |
 
 </div>
 
