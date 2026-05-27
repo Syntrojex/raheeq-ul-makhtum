@@ -83,3 +83,18 @@ All rights belong to the original author and publisher.
 Shared purely for **educational and dawah purposes**.
 No copyright infringement intended.
 
+---
+
+<div align="center">
+
+**صَلَّى اللّٰهُ عَلَيْهِ وَسَلَّمَ**
+
+<br/>
+
+*If this helped you — leave a ⭐ and share it forward.*
+
+<br/>
+
+*Made with ❤️ for the Ummah*
+
+</div>
