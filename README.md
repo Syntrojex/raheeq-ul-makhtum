@@ -13,3 +13,23 @@
 ![](https://img.shields.io/badge/-%F0%9F%8F%86%20Award%20Winning-166534?style=for-the-badge)
 
 </div>
+
+
+---
+
+## 📖 About This Book
+
+**Raheeq ul Makhtum** — *The Sealed Nectar* — is considered one of the
+finest and most authentic biographies of **Prophet Muhammad ﷺ** ever written.
+
+Originally authored in Arabic, it covers the complete life of the Prophet ﷺ —
+from his birth in Makkah to his passing — with meticulous research,
+authentic references, and beautiful narrative.
+
+> 🏆 **Won 1st Prize** at the World Muslim League's International
+> Seerah Competition, Makkah (1979) — out of **170+ entries** worldwide.
+
+It has since been translated into **50+ languages** and remains
+a must-read for every Muslim.
+
+---
